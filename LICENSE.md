@@ -1,4 +1,4 @@
-# 
+# elite Automation for Adobe Illustrator for macOS - vector export and export to SVG offers the most advanced Adobe Illustrator for macOS automation, with vector export and export
 
 
 
